@@ -1,2 +1,4 @@
 # FrishGT
-For WappleGT
+For WappleGT 
+ so make this you profile pic
+ 
